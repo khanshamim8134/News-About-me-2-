@@ -1,5 +1,6 @@
 # আন্তঃবিশ্ববিদ্যালয় প্রোগ্রামিং কনটেস্টে চাঁবিপ্রবির আইসিটি বিভাগ
 
-![image alt](https://github.com/khanshamim8134/News-About-me-2-/blob/main/481979235_1369853067375761_7377652859741764726_n.jpg) ![image alt](https://github.com/khanshamim8134/News-About-me-2-/blob/main/480439153_1369853334042401_7916684854659932874_n(1).jpg)
+![image alt](https://github.com/khanshamim8134/News-About-me-2-/blob/main/Screenshot%202025-05-21%20074917.png)
 
 https://cstu.ac.bd/news/%E0%A6%86%E0%A6%A8%E0%A7%8D%E0%A6%A4%E0%A6%83%E0%A6%AC%E0%A6%BF%E0%A6%B6%E0%A7%8D%E0%A6%AC%E0%A6%AC%E0%A6%BF%E0%A6%A6%E0%A7%8D%E0%A6%AF%E0%A6%BE%E0%A6%B2%E0%A7%9F-%E0%A6%AA%E0%A7%8D%E0%A6%B0%E0%A7%8B%E0%A6%97%E0%A7%8D%E0%A6%B0%E0%A6%BE%E0%A6%AE%E0%A6%BF%E0%A6%82-%E0%A6%95%E0%A6%A8%E0%A6%9F%E0%A7%87%E0%A6%B8%E0%A7%8D%E0%A6%9F%E0%A7%87-%E0%A6%9A%E0%A6%BE%E0%A6%81%E0%A6%AC%E0%A6%BF%E0%A6%AA%E0%A7%8D%E0%A6%B0%E0%A6%AC%E0%A6%BF%E0%A6%B0-%E0%A6%86%E0%A6%87%E0%A6%B8%E0%A6%BF%E0%A6%9F%E0%A6%BF-%E0%A6%AC%E0%A6%BF%E0%A6%AD%E0%A6%BE%E0%A6%97-1740555895264
+
